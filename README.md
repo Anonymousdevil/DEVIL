@@ -2,7 +2,7 @@
 
  Install
 
-### git clone 
+### git clone https://github.com/Anonymousdevil/DEVIL
 
 ### cd DEVIL_DDOS
 
