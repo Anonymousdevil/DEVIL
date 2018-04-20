@@ -16,5 +16,10 @@
 https://www.youtube.com/channel/UCetPBjdtKQMh1l4Ogt2buxQ
 
 
+=============================================================
+IF YOU ARE DOING ANY ILLAGLE WORK I AM NOT RESPONSIBLE FOR IT.
+======================DEVIL==================================
+
+
 
 
